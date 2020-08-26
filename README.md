@@ -1,2 +1,2 @@
 # gansta-barbie
-its a game for blacks people period no racism 
+its a blacks person thing period no racism 
